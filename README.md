@@ -1,0 +1,1 @@
+# obrazek_przekierowanie
